@@ -48,4 +48,4 @@ You can be assertive in your communication by being confident, specific, and cle
 * [Active Listening]( https://www.youtube.com/watch?v=rzsVh8YwZEQ) :-  steps/strategies to do Active Listening
 * [Reflective listening](https://en.wikipedia.org/wiki/Reflective_listening) :- Fisher's model
 * [Types of Communication
-](https://www.youtube.com/watch?v=yjOWXsDt87Y) : -
+](https://www.youtube.com/watch?v=yjOWXsDt87Y).
